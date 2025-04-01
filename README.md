@@ -67,3 +67,5 @@ Profile
 * Continued learning and development in machine learning and ethical hacking.
 
 Feel free to explore my repositories and reach out!
+
+Email : kmmpemane30@gmail.com linkedin: [https://www.linkedin.com/in/kenneth-mlimi-00078756/](https://www.linkedin.com/in/kenneth-mlimi-00078756/)
